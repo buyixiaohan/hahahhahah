@@ -11,6 +11,12 @@
 
 ### 绝命毒师
 >完结
+> 绝命毒师 第一季 Breaking Bad Season 1‎ (2008)[剧集][可播放]
+> 绝命毒师 第二季 Breaking Bad Season 2‎ (2009)[剧集][可播放]
+> 绝命毒师 第三季 Breaking Bad Season 3‎ (2010)[剧集][可播放]
+> 绝命毒师 第四季 Breaking Bad Season 4‎ (2011)[剧集][可播放]
+> 绝命毒师 第五季 Breaking Bad Season 5‎ (2012)[剧集][可播放]
+
 ### 风骚律师(绝命律师)
 >2015 第一季 10集 完结
 >2016 第二季 10集 完结
@@ -21,11 +27,33 @@
 
 ### 单身毒妈
 >完结
+
+> 单身毒妈 第一季 Weeds Season 1‎ (2005)[剧集]
+> 单身毒妈 第二季 Weeds Season 2‎ (2006)[剧集]
+> 单身毒妈 第三季 Weeds Season 3‎ (2007)[剧集]
+> 单身毒妈 第四季 Weeds Season 4‎ (2008)[剧集]
+> 单身毒妈 第五季 Weeds Season 5‎ (2009)[剧集]
+> 单身毒妈 第六季 Weeds Season 6‎ (2010)[剧集]
+> 单身毒妈 第七季 Weeds Season 7‎ (2011)[剧集]
+> 单身毒妈 第八季 Weeds Season 8‎ (2012)[剧集]
 ----
 
 ### 生活大爆炸
->未知
->
+> 完结
+
+> 生活大爆炸 第一季 The Big Bang Theory Season 1‎ (2007)[剧集]
+> 生活大爆炸 第二季 The Big Bang Theory Season 2‎ (2008)[剧集]
+> 生活大爆炸 第三季 The Big Bang Theory Season 3‎ (2009)[剧集]
+> 生活大爆炸 第四季 The Big Bang Theory Season 4‎ (2010)[剧集]
+> 生活大爆炸 第五季 The Big Bang Theory Season 5‎ (2011)[剧集]
+> 生活大爆炸 第六季 The Big Bang Theory Season 6‎ (2012)[剧集]
+> 生活大爆炸 第七季 The Big Bang Theory Season 7‎ (2013)[剧集]
+> 生活大爆炸 第八季 The Big Bang Theory Season 8‎ (2014)[剧集][可播放]
+> 生活大爆炸 第九季 The Big Bang Theory Season 9‎ (2015)[剧集][可播放]
+> 生活大爆炸 第十季 The Big Bang Theory Season 10‎ (2016)[剧集][可播放]
+> 生活大爆炸 第十一季 The Big Bang Theory Season 11‎ (2017)[剧集][可播放]
+> 生活大爆炸 第十二季 The Big Bang Theory Season 12‎ (2018)[剧集]
+
 ### 破产姐妹
 >未知
 
